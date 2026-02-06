@@ -1,0 +1,1 @@
+# vendiozz.shop
